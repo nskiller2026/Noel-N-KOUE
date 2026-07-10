@@ -1,2 +1,2 @@
 # Noel-N-KOUE
-portfolio personnel
+Référent Digital - Community Manager
